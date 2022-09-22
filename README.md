@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @durkyjojo
+- 👀 I’m interested in coding, math, and highly ambitious projects
+- 🌱 I’m currently learning to code and im new...
+- 📫 How to reach me (DM me)
